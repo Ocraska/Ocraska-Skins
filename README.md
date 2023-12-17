@@ -1,14 +1,12 @@
 # Ocraska osu! skins
 My skins (i change all time, but i try to update)
-# [dt](https://drive.google.com/file/d/1_L0y_2MYf-yrsF8tYUSVWf875RC-y_of/view?usp=sharing)
-![](https://i.imgur.com/CThtlJ1.png)
+# [aoba dt](https://drive.google.com/file/d/1-OkLLOQ3OuRR3r_ReBlhzLQdOJz7dlCf/view?usp=sharing)
+![](https://i.imgur.com/xTvg8Y8.png)
 
-# [dthr](https://drive.google.com/file/d/1gzaAvoTZ21We6EIYCDS9NILcoDnPFs6Y/view?usp=sharing)
-![](https://i.imgur.com/A8xF0O2.png)
+# [aoba dthr](https://drive.google.com/file/d/12EMfllGixmoMKUUInlO09JHNLJDz7LkQ/view?usp=sharing)
+![](https://i.imgur.com/Vo54Kds.png)
 
-# [nm hr](https://drive.google.com/file/d/1TkSJm82GmDSdwQYAciLwh7gneDPkbh_O/view?usp=sharing)
-![](https://i.imgur.com/1GAFpAv.png)
+# [aoba bubbleman](https://drive.google.com/file/d/1jFquReOxefgrrOq6hZDjUmLqwyZSXQhN/view?usp=sharing)
+![](https://i.imgur.com/sQgKXUg.png)
 
-# [Pekora Bubbleman](https://drive.google.com/file/d/1Mh7E2nk67VDbajDpeA-pPUBjjVdBgwJr/view?usp=sharing)
-![](https://i.imgur.com/2WwMErb.png)
 

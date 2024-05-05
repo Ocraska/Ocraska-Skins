@@ -1,5 +1,5 @@
 # Ocraska osu! skins
-# [- 3mod](https://osubadhabits.s-ul.eu/U6JvuOIP)
+# [- 3mod](https://osubadhabits.s-ul.eu/jWT77IE6)
 ![](https://osubadhabits.s-ul.eu/wWSnpnpm)
 
 # [- dt](https://osubadhabits.s-ul.eu/rP804bL1)
